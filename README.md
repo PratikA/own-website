@@ -1,0 +1,3 @@
+not good 
+but
+got some skills to improve..........
